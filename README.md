@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><span style="background-color:transparent; color:#000000; font-family:Arial,sans-serif; font-size:20pt">Casino Plus</span></strong></h1>
+<h1 dir="ltr"><strong><span style="background-color:transparent; color:#000000; font-family:Arial,sans-serif; font-size:20pt">Casino plus - Türkiye'de oynayın</span></strong></h1>
 
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Artı Casino Oyna</u></a></strong></p>
 
